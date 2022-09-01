@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sanjjaayyy
 - 👀 I’m interested in designing
-- 🌱 I’m currently learning graphic designing 
+- 🌱 I’m currently learning electrical and electronics engineering
 - 💞️ I’m looking to collaborate on ui ux designs 
 - 📫 How to reach me sanjaibharathi1512@gmail.com
 
